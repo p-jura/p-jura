@@ -6,6 +6,5 @@
 - 🤔 I’m looking for help with ... finding a junior job ;)
 - 💬 Ask me about ... anything
 - 📫 How to reach me: ... www.linkedin.com/in/p-jura-pawel-juroszek
-- 😄 Pronouns: ... Hi/Him
 - ⚡ Fun fact: ... one glass of water contains more atoms than there are glasses of water in all earth's oceans.
 
