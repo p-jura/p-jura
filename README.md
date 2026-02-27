@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-- 🌱 I’m currently learning ... Flutter&Dart
 - 👯 I’m looking to collaborate on ... literaly anverything ;)
 - 🤔 I’m looking for help with ... finding a junior job ;)
 - 💬 Ask me about ... anything
